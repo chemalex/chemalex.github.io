@@ -10,3 +10,5 @@ Jerry ist der FBI-Agent aus New York. Als G-man gerät er immer wieder an schwer
 * nenne ihn niemals mit seinem Vornamen Jeremias
 
 > Wenn Sie mich umbringen wollen, tun sie es wie ein echter Amerikaner: erschiessen Sie mich.
+
+<img src= "https://www.vvb.de/data/Pics/data_pics/988818916/pic.1024.jpg"/>
